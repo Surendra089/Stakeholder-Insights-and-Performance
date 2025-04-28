@@ -12,7 +12,7 @@ Please feel free to check the [issues page](../../issues).
 
 ## 📞 Contact
 For any queries or support, please reach out to:  
-**Your Name** — [your.email@example.com]  
+**Surendra Kumawat** — [Surendrakumawatnwh@gmail.com]  
 **Contact No.** — [+91 6375986775]  
-**LinkedIn**: [https://www.linkedin.com/in/your-profile](https://www.linkedin.com/in/your-profile)
+**LinkedIn**: [https://www.linkedin.com/in/surendra089/)
 
